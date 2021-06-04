@@ -6,7 +6,11 @@ All of these scripts are therefore City property and should not be reproduced wi
 
 
 Jake Johnson
-Personal Email: jaketajohnson@gmail.com 
+
+Personal Email: jaketajohnson@gmail.com
+
 Work Email: jake.johnson@springfield.il.us
+
 Personal Cell: (217) 685-6648
+
 Work Phone: (217) 789-2244 x5330
